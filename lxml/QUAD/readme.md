@@ -6,7 +6,7 @@
 
 🚀 Group Members QUAD
 >
->
+> 3. CHONG KAI ZHE
 > 4. NUR SYAMALIA FAIQAH BINTI MOHD KAMAL
 
 
